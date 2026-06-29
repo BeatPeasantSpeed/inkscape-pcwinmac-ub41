@@ -1,4 +1,4 @@
-# 
+# VIP Inkscape herramientas para Mac OS | Personalizado Inkscape herramientas para PC Windows. Con pinceles personalizados y biblioteca de símbolos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
